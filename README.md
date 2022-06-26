@@ -47,7 +47,7 @@ Here are some ideas to get you started:
 - ☕ &nbsp; I belive, a perfect cup of coffee can be the ultimate solution for any stress. 
 
 
-### <img src="https://media.giphy.com/media/VgCDAzcKvsR6OM0uWg/giphy.gif" width="50"> <span><b><a href="https://hoangthuc701.github.io/blog" target="_blank">Story of my life</a><b><span>
+### <img src="https://media.giphy.com/media/VgCDAzcKvsR6OM0uWg/giphy.gif" width="50"> <span><b><a href="https://www.thucnguyenblog.com" target="_blank">Story of my life</a><b><span>
     
 ## A litle more about me...
 
